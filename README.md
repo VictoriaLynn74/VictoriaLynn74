@@ -9,7 +9,7 @@
 
 I’m a passionate economist and research assistant currently pursuing my Master’s in Economics at Kenyatta University. I’m driven by a desire to use evidence, policy, and data to make real-world impact—especially in areas like youth employment, income inequality, and women’s economic empowerment.
 
-💡 I believe that **research only matters if it’s actionable**—that’s why I bridge policy thinking with M&E tools, data analysis, and communication.
+💡 I believe in **research for impact**—that’s why I want to explore how research alongside M&E tools, data analysis, and communication can impact policy making.
 
 ---
 
